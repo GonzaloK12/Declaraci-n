@@ -1,2 +1,0 @@
-# Declaraci-n
-Declaración
